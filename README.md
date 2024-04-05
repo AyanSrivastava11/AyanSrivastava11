@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **ayansrivastava322@gmail.com**
 
-- ⚡ Fun fact **I think I am good listener😀**
+- ⚡ Fun fact **I think I'm a good listener😀**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
